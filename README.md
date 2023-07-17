@@ -1,4 +1,4 @@
-(https://arkasoft-buckets.s3.us-east-2.amazonaws.com/uploads/2021/01/header_banner-6.jpg)
+https://3.bp.blogspot.com/-x0PVXLOZjhg/VN2siaC-0RI/AAAAAAAAD54/qzFRKBzVVpQ/s1600/Steve%2BJobs.jpg
 ### Hi there 👋, I'm Fardin Ahosan Shawon
 #### Web Developer | Data Science Enthusiast
 Web Developer | Data Science Enthusiast
